@@ -1,2 +1,2 @@
 # Transport
-Transport w tych czasach jest bardzo ważny. Dzięki niemu możemy przemieszczać się gdzie tylko chcemy oraz wysyłać paczki za granicę. 
+Transport w tych czasach jest bardzo wazny. Dzieki niemu mozemy przemieszczac się gdzie tylko chcemy oraz wysyłac paczki za granicę. 
